@@ -1,1 +1,0 @@
-# VR-Property-Consultants
